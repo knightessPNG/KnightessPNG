@@ -37,7 +37,7 @@ Other than that, I hide freely
 <summary>interests ! •⩊• </summary>
 HSR, Roblox args, Minecraft args&Myths , Creepypastas, Hazbin hotel, FNAF, Regretevator, Pressure, Doors, Grace, Depth Spelunking, Meeleniacs, Haunted hotel, Dandys world, SEWH and ... Many many more <br/>
   <br/>
-I am DrRetro, Folly, Stat Angeldust, Uzi and Emily's Number 1 fan 4eva <br/>
+I am DrRetro, Folly, Stat Angeldust, Uzi, Boggles, and Emily's Number 1 fan 4eva <br/>
 Dreamhammer, Sleepingpills/dreamkitty, Webmalice, Scag/stat,  Folly/stats Biggest shipper ever ... I love yuri!
   <br/>
 </details>
