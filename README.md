@@ -8,7 +8,7 @@ i looove my girlfriend, Sam ♡ whom I stole this code from ❤️
 · · ─ ·✶· ─ · ·
 <details>
 <summary>abt me ! >⩊< </summary>
-Peregrine . Pierce ୨୧ HeHim ⋮ 16yo FilEng 🕸️ Agender ButchDyke
+Peregrine . Pierce ୨୧ HeHim ⋮ FilEng 🕸️ Agender ButchDyke
   
 I selfship sometimes, you'll have to solve my 3 riddles to find out who I selfship with ...
 </details>
