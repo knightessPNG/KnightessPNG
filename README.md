@@ -19,8 +19,7 @@ I selfship sometimes, you'll have to solve my 3 riddles to find out who I selfsh
 My english isn't very good, sorry about that <br> 
 I make Kms Kys jokes, as well as say slurs I can reclaim <br>
 I can, and will be annoying <br>
-I'm usually AFK, so please W2I! <br>
-Any questions should be directed to my strawpage, i will ignore any mean messages or ragebait
+I'm usually AFK, so please W2I! 
 
 
 
